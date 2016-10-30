@@ -15,6 +15,5 @@
 ### Mid Michigan
 * [Mid Michigan News Roundup](midmichiganroundup-10302016.md)
 
-
 ###Shepherd Schools Choirs
 * ["Adventures of a Comic Book Artist" to be presented in the Shepherd Auditorium on November 4th and 5th ](ShepherdSchoolsChoirs/superhero.md)
