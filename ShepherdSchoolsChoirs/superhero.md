@@ -1,4 +1,4 @@
-# Adventures of a Comic Book Artist
+# "Adventures of a Comic Book Artist" to be presented in the Shepherd Auditorium on by the SMS November 4th and 5th
 
 @[ShepherdSchoolsChoirs](https://www.facebook.com/shepherdchoirs/?fref=nf) This week the Middle School Choirs will participate in the performances of "The Adventures Of A Comic Book Artist" with the Middle School Drama Cast and Crew. If interested, evening performances are on Friday and Saturday at 7PM.
 I would encourage everyone that loves theater, to come and check it out. The music is catchy, there are lots of jokes, and who doesn't like a story with loads of superheroes?!
@@ -6,3 +6,5 @@ All of the students have been working hard. The choir students sound good, and i
 For more information, follow the link to the Middle School website. [http://www.shepherdschools.net/scho…/shepherd-middle-school/](http://www.shepherdschools.net/schools/shepherd-middle-school/)
 
 <iframe width="560" height="315" src="https://www.youtube.com/embed/wJ5zs3PvrVY" frameborder="0" allowfullscreen></iframe>
+
+| [Edit](https://midmichonline.quip.com/aG1LAzun5cJh) |
