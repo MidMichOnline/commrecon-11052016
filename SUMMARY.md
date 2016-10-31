@@ -8,5 +8,5 @@
 * [Rusk County](ShepherdPoliceDepartment/ruskcounty.md)
 * ["Adventures of a Comic Book Artist" to be presented in the Shepherd Auditorium on by the SMS November 4th and 5th](ShepherdSchoolsChoirs/superhero.md)
 * [Mid Michigan News Roundup](midmichiganroundup-10302016.md)
-* [pumpkinhouse](pumpkinhouse.md)
+* [Kent Roth Pumpkin House](pumpkinhouse.md)
 
