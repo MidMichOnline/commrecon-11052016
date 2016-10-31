@@ -12,7 +12,7 @@ On Sunday, October 30, Holly Watson, branch manager for Foster Closet, visited t
 
 Here is the group that made it all happen:
 
-![100_0596jpg.txt](images/100_0596jpg.txt)
+![100_0596jpg.txt](/images/100_0596.jpg)
 ![100_0590jpg.txt](images/100_0590jpg.txt)
 ![100_0594jpg.txt](images/100_0594jpg.txt)
 ![100_0578jpg.txt](images/100_0578jpg.txt)
