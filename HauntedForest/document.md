@@ -8,7 +8,7 @@ The Haunted Forest returned this year just in time for Halloween. The public was
 
 On Sunday, October 30, Holly Watson, branch manager for Foster Closet, visited the Haunted Forest group to accept a check and pick up the items which had been collected over the weekend.
 
-![100_0606jpg.txt](images/100_0606jpg.txt)
+![100_0606jpg.txt](images/100_0606.jpg)
 
 Here is the group that made it all happen:
 
