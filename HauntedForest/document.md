@@ -18,3 +18,15 @@ Here is the group that made it all happen:
 ![100_0578jpg.txt](images/100_0578.jpg)
 ![100_0576jpg.txt](images/100_0576.jpg)
 ![100_0580jpg.txt](images/100_0580.jpg)
+
+The organizers of the Haunted Forest would like to thank the following individuals, organizations, and businesses:
+
+* Shepherd Syrup Festival
+* Shepherd Bar and Resturant
+* Merle Koutz Jr.
+* Lions Club
+* Hansen Hardware
+* Morbark
+* Boy Scout Pack 623
+
+| Edit |
