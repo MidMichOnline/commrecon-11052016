@@ -6,5 +6,7 @@ The community has been fascinated with the 1,004 carved pumpkins that are surrou
 
 [Here is are close-up photos of the pumpkins from the ground.](https://www.facebook.com/kent.w.roth/posts/10210895863498280)
 
+And here are some photos taken during the daytime:
+
 
 
