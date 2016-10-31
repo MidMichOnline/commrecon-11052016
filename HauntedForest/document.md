@@ -4,7 +4,7 @@ The Haunted Forest returned this year just in time for Halloween. The public was
 
 “Everyone from the Shepherd Haunted Forest would like to say thank you for another great year! This was our 5th year doing it and we hope everyone had a great time,” Shannon Wilcox, one of the organizers, said in a post on her Facebook page. “We had a total of 403 guest for all 3 nights and with your help we were able to donate $271.50 along with these items to Fosters Closet of Isabella Co. hope to see everyone back next year!”
 
-![image.png](images/image.png)
+![](images/image.png)
 
 On Sunday, October 30, Holly Watson, branch manager for Foster Closet, visited the Haunted Forest group to accept a check and pick up the items which had been collected over the weekend.
 
