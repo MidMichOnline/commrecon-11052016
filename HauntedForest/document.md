@@ -29,4 +29,4 @@ The organizers of the Haunted Forest would like to thank the following individua
 * Morbark
 * Boy Scout Pack 623
 
-| Edit |
+| [Edit](https://github.com/MidMichOnline/commrecon-11052016/blob/master/HauntedForest/document.md) |
