@@ -3,7 +3,7 @@
 ##Sunday, October 30, 2016
 
 ### Featured Story
-* * [Haunted Forest thrilled Community during weekend before Halloween](HauntedForest/document.md)
+* [Haunted Forest thrilled Community during weekend before Halloween](HauntedForest/document.md)
 ### Shepherd High School
 * [Congratulations Cross Country Team](ShepherdHighSchool/congratulationscc.md)
 
